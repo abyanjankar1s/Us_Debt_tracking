@@ -8,7 +8,7 @@
 						
 						
 						
-						![image](https://github.com/user-attachments/assets/807c0191-55bd-4c78-bca3-915bf3a03f9f)
+					
 
 
 <img width="528" alt="image" src="https://github.com/user-attachments/assets/92e307c5-f8dd-4b3c-8fbf-b015d0e2a753" />
@@ -22,10 +22,10 @@ the lowest increase in it. "
 							
 							
 							
-							![image](https://github.com/user-attachments/assets/be0c367c-895a-47ba-906a-4ca4742f91d7)
+						
 
 
-<img width="477" alt="image" src="https://github.com/user-attachments/assets/f0ad9598-a5ba-4a3b-aa71-2ac345b69dd9" />
+<img width="477" alt="image" src="https://github.com/user-attachments/assets/9f298eee-8f72-4105-9697-3942e3318b34" />
 
 "SUMMARY/ FINDINGS - From 1997 to 2007 we saw an increase of about 1 Trillion in publicly held debt.
 From 2008 to 2019, debt increased from 6 Trillion to 17 Trillion. 
@@ -36,7 +36,6 @@ From 2023 to 2027, it is projected that publicly held debt will increase to 33 T
 							
 							
 							
-							
-							![image](https://github.com/user-attachments/assets/41d39acc-c7d3-4583-8bb4-637491fb28dc)
+						
 
 
